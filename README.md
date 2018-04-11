@@ -43,6 +43,7 @@ Evaluation of attitudes on dating violence (EADV): A new Brazilian instrument.
 2014
 [Semantic analysis and evidence of validity of the metacognitive scale for the elderly](https://www.scielo.br/scielo.php?pid=S0102-37722017000100701&script=sci_abstract&tlng=pt)
 
+2014
 [Metamemory in the   elderly: comparison   between   actual   and   estimated performances](https://pepsic.bvsalud.org/scielo.php?script=sci_arttext&pid=S0006-59432014000100007)
 
 ## Awards and Honours
