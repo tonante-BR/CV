@@ -2,10 +2,10 @@
 
 ## Education
 **Ph.D in Psychology**
-Federal University   of São Carlos, UFSCar
+Federal University of São Carlos, UFSCar.
 Tesis: *Metacognition Scale - Senior: Evidence of validity, reliability and standardization for the elderly population.*
-Intership: University of Porto (Portugal)at the Faculty of Psychology and Education. 
-FAPESP (Process no. 2013/07115-8)
+Intership: University of Porto (Portugal)at the Faculty of Psychology and Education.
+FAPESP (Process no. 2013/07115-8).
 
 **Master's Degree in Psychology**
 Federal University   of São Carlos, UFSCAR
