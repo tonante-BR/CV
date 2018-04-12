@@ -48,13 +48,13 @@ Evaluation of attitudes on dating violence (EADV): A new Brazilian instrument.
 Carolina Bori Award granted by the Brazilian Society of Psychology at the 46th Annual Meeting of the Brazilian Society of Psychology for the work entitled "*Analysis of the factorial structure of the Metacognitive Scale - Senior and new evidence of reability*". (Category: Doctorate / 2016) 
 
 ## Top 3 Most Relevant Speeches in Scientific Meetings
-46th meeting of   the   Brazilian Psychology Society
+46th meeting of   the   Brazilian Psychology Society \
 *Title Analysis of the factorial structure of the senior metacognitive scale and new evidence of reliability.* 
 
-Ist   International Seminar Learning, self- regulation and motivation 
+Ist   International Seminar Learning, self- regulation and motivation \
 *Title: Metacognitive Scale - Senior: additional studies of validity and reliability.* 
 
-28th International Congress of Applied Psychology(Paris/France).
+28th International Congress of Applied Psychology(Paris/France) \
 *Title: Exploring psychometrics properties of the metacognitive senior scale* 
 
 ## Services
