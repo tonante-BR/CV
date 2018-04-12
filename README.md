@@ -27,7 +27,7 @@ Mercadotecnia Research and Market Strategy
 ## Publications
 *Peer-Reviewed Journal Articles* 
 
-Submitted \
+2018 Submitted \
 Confirmatory Factorial Analysis of the Metacognition Scale – Senior. 
 
 Evaluation of attitudes on dating violence (EADV): A new Brazilian instrument.
