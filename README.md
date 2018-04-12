@@ -33,7 +33,9 @@ Mercadotecnia Research and Market Strategy
 ## Publications
 *Peer-Reviewed Journal Articles* 
 
-2018 Submitted \
+2017-2018 Submitted \
+FlexPersonas: a collaborative method designed for elderly home healthcare
+
 Confirmatory Factorial Analysis of the Metacognition Scale – Senior. 
 
 Evaluation of attitudes on dating violence (EADV): A new Brazilian instrument.
