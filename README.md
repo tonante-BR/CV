@@ -24,10 +24,10 @@ Centro Universitário Barão de Mauá
 - Python for Data Analysis
 
 ## Employments
-Professor \
+Professor (2011-2013) \
 FSL - College São Luís
 
-Full-market analyst \
+Full-market analyst (2009-2011) \
 Mercadotecnia Research and Market Strategy
 
 ## Publications
